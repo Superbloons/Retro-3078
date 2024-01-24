@@ -20,6 +20,6 @@ Real people I knew are featured in the game
 Good luck braving the future!
 
 
-This game was made and sold by TAG Gaming
+This game was made and sold by RGI
 
 This is just a Demo version!!!
